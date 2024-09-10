@@ -5,5 +5,5 @@
 - 📫 How to reach me with your dick
 - 😄 Pronouns: nigger/niggerself
 - ⚡ Fun fact: i like gay nigger dick
- dni if under 4 inches
-Michalpedalko
+ -dni if under 4 inches
+  
